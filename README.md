@@ -1,2 +1,7 @@
 # AstridS44github.io
-Primer intento con Github
+
+¡¡HOLA!!
+
+Mi nombre es Astrid Milena Sierra
+Tengo 35 años
+Me encanta hacer ejercicio y bailar folclor
